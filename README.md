@@ -1,1 +1,1 @@
-👋 Hi, I'm Declan Fitzpatrick. I'm a Senior Software Engineer at RHE Global. Previously a lead game developer at SG Digital, Lead Platform Developer at Dropless, and a Senior Software Engineer at Huboo!
+👀
